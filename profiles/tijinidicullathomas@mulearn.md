@@ -24,7 +24,7 @@ B.Tech.
 
 #### Networking:
 
-During my internship at Greenbhumi I made many posters,infpgraphics etc. to spread awareness about different social and environmental issues.
+During my internship at Greenbhumi I made many posters,info graphics etc. to spread awareness about different social and environmental issues.
 
 #### Career Plan:
 
